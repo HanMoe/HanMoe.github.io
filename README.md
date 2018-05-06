@@ -1,2 +1,0 @@
-
-###Thanks Github ！
